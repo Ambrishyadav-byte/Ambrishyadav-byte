@@ -22,7 +22,7 @@
 
   **— "Two birds, bound in close friendship, reside on the same tree.  
   One eats the sweet fruit, while the other watches in silence."**  
-  *(Ṛg Veda 1.164.20, also in Mundaka Upanishad 3.1.1)*  
+  *(Mundaka Upanishad 3.1.1)*  
 
   💡 **"Like the observer and the doer in a program, the soul (Jīvātma) experiences life  
   while the Supreme (Paramātma) watches as the eternal witness!"**  
