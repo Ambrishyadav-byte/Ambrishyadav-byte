@@ -13,13 +13,20 @@
 
 - 📫 How to reach me **myself@ambrishbytes.tech**
 
-- ⚡ Fun fact **By day, I write code; by night, I explore the cosmic source code—navigating between Advaita’s oneness and Dvaita’s divine duality!" 📜 Upanishadic Wisdom on Dvaita:
- "द्वा सुपर्णा सयुजा सखाया समानं वृक्षं परिषस्वजाते।
- तयोरन्यः पिप्पलं स्वाद्वत्त्यनश्नन्नन्यो अभिचाकशीति॥" —
-"Two birds, bound in close friendship, reside on the same tree.
-One eats the sweet fruit, while the other watches in silence."
- (Mundaka Upanishad 3.1.1)
-💡 "Like the observer and the doer in a program, the soul (Jīvātma) experiences life while the Supreme (Paramātma) watches as the eternal witness!"**
+- ⚡ Fun fact  
+  **By day, I write code; by night, I explore the cosmic source code—navigating between Advaita’s oneness and Dvaita’s divine duality!**  
+
+  📜 **Upanishadic Wisdom on Dvaita:**  
+  *"द्वा सुपर्णा सयुजा सखाया समानं वृक्षं परिषस्वजाते।  
+  तयोरन्यः पिप्पलं स्वाद्वत्त्यनश्नन्नन्यो अभिचाकशीति॥"*  
+
+  **— "Two birds, bound in close friendship, reside on the same tree.  
+  One eats the sweet fruit, while the other watches in silence."**  
+  *(Ṛg Veda 1.164.20, also in Mundaka Upanishad 3.1.1)*  
+
+  💡 **"Like the observer and the doer in a program, the soul (Jīvātma) experiences life  
+  while the Supreme (Paramātma) watches as the eternal witness!"**  
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
