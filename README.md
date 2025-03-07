@@ -28,7 +28,7 @@
   while the Supreme (Paramātma) watches as the eternal witness!"**  
 
 🎬 **Favorite Song:**  
-[![Listen Now](https://img.youtube.com/vi/uDd3iupKUyI/0.jpg)](https://www.youtube.com/watch?v=uDd3iupKUyI&t=70s)
+[![Listen Now](https://img.youtube.com/vi/uDd3iupKUyI/10.jpg)](https://www.youtube.com/watch?v=uDd3iupKUyI&t=70s)
 
 <p align="left">
 </p>
