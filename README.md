@@ -27,9 +27,9 @@
   💡 **"Like the observer and the doer in a program, the soul (Jīvātma) experiences life  
   while the Supreme (Paramātma) watches as the eternal witness!"**  
 
+🎬 **Favorite Song:**  
+[![Listen Now](https://img.youtube.com/vi/uDd3iupKUyI/0.jpg)](https://www.youtube.com/watch?v=uDd3iupKUyI&t=79s)
 
-<h3 align="left">favorite:</h3> 
-<iframe width="560" height="315" src="https://www.youtube.com/embed/uDd3iupKUyI?si=nFqY7wfI7WzREOnz&amp;start=79" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 <p align="left">
 </p>
 
